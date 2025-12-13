@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a multimedia designer working on artistic and audio reactive installations
+Hello there! I'm a multimedia designer working on artistic and audio reactive installations
 
 
 ## 🌐 Socials:
